@@ -1,1 +1,1 @@
-2weektoscript
+2week
